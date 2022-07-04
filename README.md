@@ -7,7 +7,7 @@ One of the Best and cheap service to Get Silent/fake members in Telegram channel
 ![Logo](https://www.cryptoxpromoter.com/wp-content/uploads/2022/06/How-To-Increase-Telegram-Subscribers.png)
 
 
-## Fake Telegram Members Service
+## Fake Telegram Members Services
 ## Get Now
 
 - [Contact Here](https://www.cryptoxpromoter.com/buy-now/)
